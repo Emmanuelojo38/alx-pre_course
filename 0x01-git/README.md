@@ -1,1 +1,2 @@
-God's blessings
+God's blessings everyday!!!
+Better days ahead
